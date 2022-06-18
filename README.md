@@ -1,3 +1,3 @@
-Hi, I'm @shellshaper,
+Hi,
 
-I'm interested in Games, Music (Metal/Rock) and nerd stuff.
+I'm @shellshaper and I'm interested in Games, Music (Metal/Rock) and nerd stuff.
